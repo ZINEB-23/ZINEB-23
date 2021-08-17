@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ZINEB-23
 - 👀 I’m interested in learning languages
-- 🌱 I’m currently learning Marketing and sales actions
+- 🌱 I’m currently learning Marketing and sales operations
 - 💞️ I’m looking to collaborate on projects that combine digital marketing and AI
 - 📫 How to reach me z.smoud@gmail.com
 
